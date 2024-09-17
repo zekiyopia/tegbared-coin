@@ -1,0 +1,2 @@
+# tegbared-coin
+meme coin
